@@ -1,6 +1,1 @@
-Research talk
-https://docs.google.com/presentation/d/1HttRfSunMaV6yWmaAe4LrFUY6WtmgS_0SPXz3l4eK74/edit?usp=sharing
-
-
-Teaching talk
-https://docs.google.com/presentation/d/1WQowmHEskwc2xLPUCxS6-nic2UBKC505VnefFkvrbaM/edit?usp=sharing
+https://docs.google.com/presentation/d/18691T1ZQ84nJJp6rJ9ZcPTMtem0h1k310PZarypbPbk/edit?usp=sharing
