@@ -1,3 +1,7 @@
+PuG
+https://docs.google.com/presentation/d/1DvZ-MhyBaUI_0BcWApybHj0tDyZcLr78JPAWmbMDjyQ/edit?usp=sharing
+
+RLDM
 https://drive.google.com/drive/folders/1yau-zGXxAFHwSFPvcm0Y-l98XrefZJjR?usp=drive_link
 
 KI/UBB symposium
