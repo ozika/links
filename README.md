@@ -1,10 +1,13 @@
-UCD
+UCD - view
 https://docs.google.com/presentation/d/134No9h9EZsvth7-CcgsAdqcZsSm-yZIl/edit?usp=sharing&ouid=116299352064709430488&rtpof=true&sd=true
 
-PuG
+UCD - edit
+https://docs.google.com/presentation/d/134No9h9EZsvth7-CcgsAdqcZsSm-yZIl/edit?usp=sharing&ouid=116299352064709430488&rtpof=true&sd=true
+
+PuG (2025)
 https://docs.google.com/presentation/d/1DvZ-MhyBaUI_0BcWApybHj0tDyZcLr78JPAWmbMDjyQ/edit?usp=sharing
 
-RLDM
+RLDM (2025)
 https://drive.google.com/drive/folders/1yau-zGXxAFHwSFPvcm0Y-l98XrefZJjR?usp=drive_link
 
 KI/UBB symposium
