@@ -1,7 +1,6 @@
-Mini talk July 
-https://www.canva.com/design/DAHPP2HEr-M/jSr--oRp-cgJBfevJjBIPA/edit 
+All Ireland comp neuro
+https://canva.link/itwq4v4092p9o2u 
 
-Lecture April 2026
-https://canva.link/ixi9ia2se0m1zgr 
+
 
 
